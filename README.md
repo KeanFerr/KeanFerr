@@ -1,4 +1,4 @@
-# Hi there, I'm Kent Vincent Ferrarez 👋
+# Hi there, I'm Kent Ferrarez 👋
 
 ### 🕵️‍♂️ Quality Assurance Tester | AI Enthusiast & Builder
 
